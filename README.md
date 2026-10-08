@@ -1,0 +1,2 @@
+# premium-basse-lisse-001-basse-lisse-horizontal-loom-te
+Stop guessing your warp tension mid-project—one uneven thread can ruin hours of basse-lisse work. This Notion template gives you a precise, repeatable tension log for your horizontal loom.  Designed specifically for basse-lisse weavers, this log eliminates the guesswork of tension management. Record exact settings per session, compare historical da
